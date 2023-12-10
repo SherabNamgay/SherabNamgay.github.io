@@ -1,1 +1,0 @@
-# SherabNamgay.github.io
